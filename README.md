@@ -10,3 +10,4 @@
   
   ⚡ Fun fact: Am really smart🧠 
 
+[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Tru-okenye)](https://github.com/Tru-okenye/github-readme-stats)
