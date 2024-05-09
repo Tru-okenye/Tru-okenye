@@ -8,7 +8,7 @@
   
   📫 Hit me up on Twitter https://twitter.com/teekerry1  
   
-  ⚡ Fun fact: Am really smart🧠 
+  ⚡ Fun fact: I am really smart🧠 
 
 <img alt="my stats" align="left" width="47%" src ="https://github-readme-stats.vercel.app/api?username=Tru-okenye"/>  
 
