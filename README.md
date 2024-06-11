@@ -8,5 +8,5 @@
   
   📫 Hit me up on Twitter https://twitter.com/teekerry1  
   
-  ⚡ Fun fact: I am really smart🧠 
+  ⚡ Fun fact: I'm really smart🧠 😂❤
 
