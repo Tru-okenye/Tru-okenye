@@ -2,7 +2,7 @@
 
 
 
- 🔭 I’m currently working on python projects🐍❤️  
+ 🔭 I’m currently working on android projects🐍❤️  
  
   💬 Ask me about tech..otherwise I don't care😂😎  
   
