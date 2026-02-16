@@ -1,4 +1,4 @@
-### Hi am Truphy 👋  
+### Hi I'm Truphy 👋  
 
 
 
