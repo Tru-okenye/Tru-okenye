@@ -2,7 +2,7 @@
 
 
 
- 🔭 I’m currently working on android projects📲❤️  
+ 🔭 I’m currently working on cross-platorm Apps📲❤️  
  
   💬 Ask me about tech..otherwise I don't care😂😎  
   
